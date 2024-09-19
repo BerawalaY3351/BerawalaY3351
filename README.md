@@ -1,4 +1,4 @@
-### Hi there 👋 Yash Berawala
+### Hi there 👋 I'm Yash Berawala
 
 <!--
 **BerawalaY3351/BerawalaY3351** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
